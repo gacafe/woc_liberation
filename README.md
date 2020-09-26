@@ -19,5 +19,5 @@ If you are less familiar with Audre Lorde, please also take the time to research
 - [Why I'm No Longer Talking to White People About Race by Reni Eddo-Lodge](https://www.goodreads.com/book/show/33606119-why-i-m-no-longer-talking-to-white-people-about-race)
 - [The Dark Fantastic: Race and the Imagination from Harry Potter to the Hunger Games by Ebony Elizabeth Thomas](https://www.goodreads.com/book/show/24041489-frank-talk?from_search=true&from_srp=true&qid=8Qo5XtqvhJ&rank=2)
 
-## 29/09/2020 - Topic: tbd
-**Reading:** tbd
+## 29/09/2020 - Topic: Power
+**Reading:** [Enough With Crumbs — I Want the Cake. Power is anarchy. It dismantles patriarchal social structures and allows us to rebuild them with equity at their foundation.](https://www.nytimes.com/2019/05/28/opinion/women-anarchy-patriarchy.html)
